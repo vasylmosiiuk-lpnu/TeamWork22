@@ -1,1 +1,1 @@
-Shmyheliuk.Lendiel.Lev.Kolodiichuk.Oleksandr.Volodymyr.Andrii.Orest
+Shmyheliuk.Lendiel.Lev.Kolodiichuk.Oleksandr.Volodymyr.Andrii.Oresе
