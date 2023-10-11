@@ -1,1 +1,1 @@
-Staretskyi.Shlomiak.Danylo.Vladyslav
+Staretskyi.Shlomiak.Filip.Kateryna.Danylo.Vladyslav
