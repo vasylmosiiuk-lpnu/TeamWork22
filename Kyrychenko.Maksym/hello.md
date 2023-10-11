@@ -1,1 +1,1 @@
-Kyrychenko.Filip.Katya.Maksym
+Kyrychenko.Maksym
