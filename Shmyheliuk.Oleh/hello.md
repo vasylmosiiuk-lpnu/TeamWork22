@@ -1,1 +1,1 @@
-Shmyheliuk.Shmyheliuk.Lendiel.Andrii.Orest.Oleh
+Shmyheliuk.Shmyheliuk.Vikhovanets.Konstantin.Lendiel.Andrii.Orest.Oleh
