@@ -1,1 +1,1 @@
-Horak.Hrytsai.Zhyla.Volodymyr.Khrystyna.Maksym
+Horak.Hrytsai.Zhyla.Kyrychenko.Maksym.Volodymyr.Khrystyna.Maksym
