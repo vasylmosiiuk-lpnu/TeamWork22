@@ -1,1 +1,1 @@
-Vykhovanets.Hrytsai.Khrystyna.Konstantyn
+Vykhovanets.Hrytsai.Kyrychenko.Maksym.Khrystyna.Konstantyn
