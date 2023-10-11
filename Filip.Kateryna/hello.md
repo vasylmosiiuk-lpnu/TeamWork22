@@ -1,1 +1,1 @@
-Filip.Shlomiak.Kyrychenko.Maksym.Danylo.Kateryna
+Filip.Shlomiak.Staretskyi.Kyrychenko.Maksym.Vladyslav.Danylo.Kateryna
