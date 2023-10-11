@@ -1,1 +1,1 @@
-Hrytsai.Blyzniuk.Oleksii.Khrystyna
+Hrytsai.Horak.Blyzniuk.Oleksii.Maksym.Khrystyna
