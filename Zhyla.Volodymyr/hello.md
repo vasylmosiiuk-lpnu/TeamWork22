@@ -1,1 +1,1 @@
-Zhyla.Kolodiichuk.Oleksandr.Volodymyr
+Zhyla.Kolodiichuk.Husar.Artur.Oleksandr.Volodymyr
