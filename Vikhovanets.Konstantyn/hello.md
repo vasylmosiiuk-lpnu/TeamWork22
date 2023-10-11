@@ -1,1 +1,2 @@
-Vykhovanets.Hrytsai.Kyrychenko.Maksym.Khrystyna.Konstantyn
+Vykhovanets.Hrytsai.Kyrychenko.Staretskyi.Vladyslav.Maksym.Khrystyna.Konstantyn
+
