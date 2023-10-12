@@ -1,1 +1,1 @@
-Hudzenko.Husar.Kaflovskyi.Roman.Artur.Denys
+Hudzenko.Husar.Kaflovskyi.Labay.Sergiy.Roman.Artur.Denys

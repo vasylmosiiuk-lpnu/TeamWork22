@@ -1,3 +1,2 @@
-Maksymliuk.Labay.Sergiy.Nazar
 
-
+Maksymliuk.Labay.Berzhavych.Filip.Kateryna.Andriy.Sergiy.Nazar
