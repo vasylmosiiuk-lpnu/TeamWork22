@@ -1,1 +1,1 @@
-Kyrychenko.Shlomiak.Berzhavych.Andriy.Danylo.Maksym
+Kyrychenko.Shlomiak.Berzhavych.Maksymliuk.Nazar.Andriy.Danylo.Maksym
