@@ -1,1 +1,1 @@
-Kaminska.Blyzniuk.Shmyheliuk.Oleh.Oleksii.Nataliia
+Kaminska.Blyzniuk.Shmyheliuk.Horak.Maksymliuk.Nazar.Maksym.Oleh.Oleksii.Nataliia
