@@ -1,3 +1,2 @@
-Labay.Bezhavych.Hudzenko.Husar.Artur.Denys.Andriy.Sergiy
-
+Labay.Bezhavych.Hudzenko.Husar.Hushan.Artem.Artur.Denys.Andriy.Sergiy
 
