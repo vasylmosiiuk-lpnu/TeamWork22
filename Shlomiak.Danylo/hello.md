@@ -1,1 +1,1 @@
-Shlomiak.Danylo
+Shlomiak.Staretskyi.Vikhovanets.Filip.Yushkevych.Andrii.Katya.Konstantin.Vladyslav.Danylo

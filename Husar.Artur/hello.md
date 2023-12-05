@@ -1,1 +1,1 @@
-Husar.Zhyla.Kolodiichuk.Oleksandr.Volodymyr.Artur
+Husar.Zhyla.Kolodiichuk.Horak.Hushan.Artem.Maksym.Oleksandr.Volodymyr.Artur
