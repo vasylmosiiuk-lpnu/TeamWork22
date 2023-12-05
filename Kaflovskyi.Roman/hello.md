@@ -1,1 +1,1 @@
-Kaflovskyi.Lev.Husar.Hudzenko.Denys.Artur.Volodymyr.Roman
+Kaflovskyi.Lev.Husar.Hudzenko.Vitushynskyi.Maksym.Denys.Artur.Volodymyr.Roman
